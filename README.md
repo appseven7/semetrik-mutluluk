@@ -1,2 +1,0 @@
-# semetrik-mutluluk
-Yeni
